@@ -1,0 +1,1 @@
+一个nt相关的galgame
